@@ -5,28 +5,7 @@
 Now, the wait is almost over. Rockstar Games officially announced that **GTA 6 is in development**. In this article, we will look at everything we know so far about the game — from its trailer, setting, story, characters, release date, and other details.
 
 ---
-# জলদি অর্ডার করুন সবাই 🔥  
-## 🛍️ পণ্যের নাম: Knee Support Braces Elastic Sport Compression Pads
-
----
-
-### 💸 ছাড় মূল্য: **৳220**  
-### ❌ পণ্যের মূল মূল্য: ~~৳699~~
-
----
-
-✅ আরামদায়ক  
-✅ ব্যথা উপশমে সহায়ক  
-✅ খেলাধুলা বা ব্যায়ামের জন্য আদর্শ  
-✅ ইউনিসেক্স ডিজাইন
-
----
-
-📥 **স্টক সীমিত, তাই দেরি না করে এখনই অর্ডার করুন!**
-
-🛒 **অর্ডার লিংক:**  
-👉 [https://s.daraz.com.bd/s.ZWWpP?cc](https://s.daraz.com.bd/s.ZWWpP?cc)
-
+[For More Details Click Here](https://daraz.s3-tastewp.com/gta-6-by-rockstar-games-everything-we-know-so-far/)
 ---
 
 
